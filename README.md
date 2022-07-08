@@ -1,1 +1,0 @@
-# ai22_building
